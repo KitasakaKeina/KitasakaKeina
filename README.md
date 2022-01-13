@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Kitasaka Keina, 北坂恵奈
+北坂恵奈 (Kitasaka Keina)
 
 nothing but vanity...
 
