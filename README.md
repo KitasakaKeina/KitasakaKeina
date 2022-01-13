@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+Kitasaka Keina, 北坂恵奈
+
+nothing but vanity...
+
 <!--
 **KitasakaKeina/KitasakaKeina** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
